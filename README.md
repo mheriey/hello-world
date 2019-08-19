@@ -1,2 +1,3 @@
 # hello-world
-start up i mean i am  new here
+start up 
+mary here, new here and trying to learn what i can possibly can.
